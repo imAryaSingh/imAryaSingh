@@ -29,7 +29,7 @@ I am Arya Singh, a graduate from IGNOU in Arts with a deep interest in the IT se
 - **Email**: singharyaofficial@gmail.com
 
 ## Hobbies and Interests
-In my free time, I enjoy listening to music, watching movies, and acting.
+In my free time, I enjoy listening to music and watching movies.
 
 ## Social Media
 - **LinkedIn**: https://www.linkedin.com/in/imaryasingh?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
